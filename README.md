@@ -1,1 +1,1 @@
-# co-jsem-dnes-skutecne-delal picuuuu
+# co-jsem-dnes-skutecne-delal veci
